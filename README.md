@@ -5,7 +5,7 @@ https://link.mercadopago.cl/nachindelguindo
 
 https://www.paypal.com/donate?hosted_button_id=4D76E49FC8KT2
 
-i request donations to continúe making this videogame.
+i request donations to continue making this videogame.
 videogame clips
 
 https://youtu.be/ld-SsrdoFJ4?si=ju0hA9ROh6012gFE
